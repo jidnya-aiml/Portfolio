@@ -1,1 +1,1 @@
- https://jidnya-aiml.github.io/Portfolio/
+https://jidnyanandanwar8.github.io/Portfolio/
